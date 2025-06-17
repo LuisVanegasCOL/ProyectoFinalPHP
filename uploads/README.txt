@@ -1,0 +1,1 @@
+Coloca aquí las imágenes subidas por el administrador desde el panel de control. 
